@@ -1,6 +1,4 @@
-You can either do the code version or i am provding you with a template 
 
-visit [createmysurprise.com](https://createmysurprise.com/dashboard)  (TEMPLATE) and use the code AASTHA25
 
 
 https://youtu.be/tZkQOdscIe4?si=sQnM9RRwdGvFCRO_ (code version , efforts )
